@@ -7,3 +7,5 @@ What's the time?
 Crazy? 
 IKR!
 Haha, lol.
+
+ADDING SOMETHING NEW
